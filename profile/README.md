@@ -2,6 +2,8 @@
 
 Are you ready to face the **crazy**, **dark**, and **deadly** world of **Five Nights at Freddy's Online**? This **epic survival horror** game brings the terrifying animatronic nightmare straight to your screen, delivering an unforgettable experience that blends **intense combat**, **stealth**, and **strategic survival** in a **3D**, **multiplayer** environment.
 
+## <a href="https://1kb.link/XEI1MO">👉 Play Five Nights at Freddy's Unblocked NOW 👈</a>
+
 ### What Makes Five Nights at Freddy's Online So Addictive?
 
 **Five Nights at Freddy's Online** is not just a classic horror game remake — it's a **hyper casual** yet **extreme** thrill ride. Whether you’re battling as a brave security guard or playing as a **savage animatronic monster**, every moment is packed with **smashing action**, **rapid escapes**, and nail-biting suspense. This game’s **dark** and **mystic** atmosphere, combined with stunning **HD** graphics and realistic sound effects, immerses players into the eerie halls of Freddy Fazbear’s pizzeria.
